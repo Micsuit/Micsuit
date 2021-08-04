@@ -2,4 +2,4 @@
 
 - If you want collaborate with me, tell me first (obviously).
 
-- And I don't speak english like my first language, so yeah I will do a lot of errors.
+- And english isn't my native language, so yeah I will do a lot of gramatical errors.
